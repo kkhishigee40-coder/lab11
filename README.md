@@ -1,1 +1,2 @@
-# lab11
+ogogdliin san
+ner soliw
