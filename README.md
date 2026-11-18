@@ -1,2 +1,2 @@
-ogogdliin san
-ner soliw
+setup  υθιλύύ.
+
